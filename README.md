@@ -1,4 +1,4 @@
-c+h & friendly , just very shy !
+c+h & friendly , just very shy ! (no c+h if with friends srry)
 
 i dont mind chitchat but i wont talk if i dont want to 
 
